@@ -1,0 +1,1 @@
+![Joker](UJZiY_kbxb4.jpg)
